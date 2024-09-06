@@ -1,2 +1,1 @@
-# mtc_repo
-primeiro de muitos filhao
+# O final de attack on titan é triste pra caramba, lindíssimo. Chorei
