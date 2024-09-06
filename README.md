@@ -1,1 +1,0 @@
-# O final de attack on titan é triste pra caramba, lindíssimo. Chorei
